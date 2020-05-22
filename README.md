@@ -9,4 +9,5 @@
 # Want to try
 
 - [Roman Gnocchi](https://www.deliaonline.com/recipes/type-of-dish/risotto-and-gnocchi/roman-gnocchi)
+- [Rhubarb Kimchi](http://www.fortheloveofbody.com/blog/h3ecpbzm58l3lm4mbftkl7g99smh8b)
 
